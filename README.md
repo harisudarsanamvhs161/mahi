@@ -16,4 +16,4 @@
 2. fruits
 
 [google](https://www.w3schools.com/html/)
-!(alt)(https://www.google.com/imgres?imgurl=https%3A%2F%2Fimages.outlookindia.com%2Fpublic%2Fuploads%2Farticles%2F2020%2F10%2F3%2FDhoni-vs-Hyderabad-IPL_571_855.jpg&imgrefurl=https%3A%2F%2Fwww.outlookindia.com%2Fwebsite%2Fstory%2Fsports-news-ipl-2020-ms-dhoni-admits-he-was-not-able-to-middle-lot-of-deliveries-as-csk-suffer-third-straight-defeat%2F361396&tbnid=OBI9LUHeOo9_bM&vet=12ahUKEwiMi6fH2P_uAhWJfX0KHUTmDLQQMyggegUIARCUAg..i&docid=-6Hget_75vMj0M&w=855&h=571&q=dhoni&ved=2ahUKEwiMi6fH2P_uAhWJfX0KHUTmDLQQMyggegUIARCUAg)
+!(alt)(https://www.google.com/imgres?imgurl=https%3A%2F%2Fwallpapercave.com%2Fwp%2Fwp1859026.jpg&imgrefurl=https%3A%2F%2Fwallpapercave.com%2Fms-dhoni-wallpapers&tbnid=EjTqTWDQjmsXwM&vet=12ahUKEwiS4P2e2f_uAhWrjUsFHfLxBHAQMygCegUIARDJAQ..i&docid=gz3xCZmv6NUCTM&w=1024&h=768&q=dhoni%20pics%20hd&ved=2ahUKEwiS4P2e2f_uAhWrjUsFHfLxBHAQMygCegUIARDJAQ)
